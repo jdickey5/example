@@ -1,6 +1,8 @@
 # Example Read Me
-# Modified 4-25-24 at 14:20
+# Modified 4-25-24 at 14:31
 
-Bien venido!
+Mae govannen, 
 
-La-dee la-dee la-dee get your adverbs here!
+Hiro hyn hidh, ab wanath.
+
+Namarie.
